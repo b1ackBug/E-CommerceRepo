@@ -1,1 +1,1 @@
-Link - https://b1ackbug.github.io/E-CommerceRepo/
+Link - https://faridgarayev.github.io/E-CommerceRepo/
